@@ -7,6 +7,9 @@ Next
 get start the preparation
 Next
 Cut the vegies.
+prepare soup for veg
+prepare sweet
+
 
 
 
